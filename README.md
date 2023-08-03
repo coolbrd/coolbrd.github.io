@@ -30,4 +30,4 @@ We may update our privacy policy from time to time. Any changes will be reflecte
 
 ## Contact Us
 
-If you have any questions or concerns about this privacy policy or SaidIt's data practices, please contact us at pelicanappscustomerservice@gmail.com.
+If you have any questions or concerns about this privacy policy or SaidIt's data practices, please contact us at pelicanappcustomerservice@gmail.com.
